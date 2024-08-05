@@ -5,7 +5,7 @@
 
 - 📫 Contactame en **edinsonamaya31@gmail.com**
 
-- ⚡ Dato curioso **Me encanta aprender y forzarme a cumplir retos que me estresen**
+- ⚡ Dato curioso **Me encanta aprender y forzarme a cumplir retos que me generen nuevos conocimientos y me lleven a experimentar nuevas formas de solucionar cualquier obstáculo**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
